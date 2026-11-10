@@ -43,4 +43,4 @@ These Terms are governed by the laws of Brazil.
 
 ## 9. Contact
 
-Questions about these Terms: [CONTACT E-MAIL]
+Questions about these Terms: mkcutspro@gmail.com

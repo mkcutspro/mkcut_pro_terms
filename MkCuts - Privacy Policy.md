@@ -47,4 +47,4 @@ We may update this policy. The "Last updated" date shows the current version.
 
 ## 8. Contact
 
-Privacy questions or requests: [CONTACT E-MAIL]
+Privacy questions or requests: mkcutspro@gmail.com
